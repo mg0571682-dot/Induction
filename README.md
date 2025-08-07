@@ -23,7 +23,36 @@ Informed About *Satya Scholarship Program2025
 Shared step by step guidelines on how to apply
 ##3:00PMto4:30PM Causmic club sesion andInduction Launch 
 Created account on Github
+
 Learned basic of using Github
+##INDUCTION DAY 4**
+9:30AM TO 10:30AM
+P2P Lecture(TCC SEMI HALL)
+How to start coding
+10:30AM TO 11:30 AM
+BEEE LECTURE(TCC SEMI HALL
+TOPIC Wavelengt,Photosynthesis,etc
+ 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 Introduction to version control,respositories activities officially launched
 **##Induction Day 3**
 9:00AM to10:30AM
