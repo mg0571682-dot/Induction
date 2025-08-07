@@ -25,3 +25,18 @@ Shared step by step guidelines on how to apply
 Created account on Github
 Learned basic of using Github
 Introduction to version control,respositories activities officially launched
+**##Induction Day 3**
+9:00AM to10:30AM
+English Lecture
+**Comunnication Skils Developnment**
+10:30AM to11:30AM
+**Chemistry Lecture**
+Basic Concept Of Chemistry
+11:30AM TO 12:30PM
+Lunch Break
+12:00PM To 2:30PM
+Expert Lecture by Dr.Priya Darshni Madam
+"HUMAN MORAL VALUES-2AUDITORIU
+2:3O PM TO 3:30 PM
+Sesson by Causmic CLUB
+Organise club, Organise Event Time ti time
